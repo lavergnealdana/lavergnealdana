@@ -1,6 +1,6 @@
 ## Hola soy Aldana👋
 
-😄 Soy Aldana, una apasionada del análisis de datos con una sólida formación en administración de empresas y recursos humanos. Poseo más de 7 años de experiencia en el ámbito administrativo, incluyendo gestión administrativa y atención al cliente. 
+😄 Soy una apasionada del análisis de datos con una sólida formación en administración de empresas y recursos humanos. Poseo más de 7 años de experiencia en el ámbito administrativo, incluyendo gestión administrativa y atención al cliente. 
 
 Me apasiona transformar datos en información estratégica que impulse el crecimiento y éxito de las organizaciones. 
 
